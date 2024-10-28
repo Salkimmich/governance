@@ -1,1 +1,0 @@
-Proposed and accepted projects will be added to the this page.
